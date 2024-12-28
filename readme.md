@@ -1,3 +1,3 @@
-#Damn 
+# Damn 
 
-Leaning something new
+Leaning something new,sheesh
